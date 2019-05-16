@@ -1,3 +1,4 @@
 # Welcome to my blog
 
-I'm glad you are here. I plan to talk about ...
+I'll start with a quote:
+> I hate quotes. Don't quote me.
